@@ -1,4 +1,4 @@
-# 
+# 高级 geckoterminal sniper bot 模板 Mac OS版 | 高级 geckoterminal sniper bot 模板 PC Windows版。集成 区块链索引 和 杠杆交易，跨平台性能最大化。
 
 
 
